@@ -1,4 +1,4 @@
-Python Developer
+Look for a job(Python Developer)
 (Minsk, Republic of Belarus)
 
 Contact:
